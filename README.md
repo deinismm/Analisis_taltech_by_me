@@ -1,0 +1,1 @@
+# Analisis_taltech_by_me
